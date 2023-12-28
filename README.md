@@ -20,4 +20,4 @@ As we embark on this presentation, I invite you to delve into the intricate deta
 Thank you for being a part of this endeavor.
 
 Sincerely,
-Oussama "scalx".
+Oussama "Scalx".
